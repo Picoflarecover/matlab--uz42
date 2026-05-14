@@ -1,4 +1,4 @@
-# 
+# Enhance MATLAB for PC | MATLAB for Windows with secure MATLAB for PC | MATLAB for Windows Addon | LaTeX-support + simulation, the #1 addon. Includes LaTeX-support and simulation
 
 
 
